@@ -1,6 +1,9 @@
-yo
-i be fuckin screaming at AI chatbots cuz they CHUDS fr 
-fuck openai & low ram prices bitch ass niggas
-no cap i be making 🧀s 😭😭😭😭 jk 👀👀👀
-i do youtube, twitch, streaming, all dat type shit type shit type shit
+# yo 👀
+
+i be f**kin **screaming** at chatbots cuz they CHUDS fr  
+**fuck** openai & lower ram prices nigga  
+
+no cap i be makin 🧀🧀🧀😭😭😭 (jk... 👀👀👀)  
+
+yeah i do youtube, twitch, streaming, all dat type shit type shit type shit  
 but this github still my main hobby lowkey no bullshit
