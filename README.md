@@ -1,6 +1,6 @@
 # yo 👀
 
-i be f**kin **screaming** at chatbots cuz they CHUDS fr  
+i be f**kin **screaming** at chatbots cuz they ARE CHUDS   
 **fuck** openai & lower ram prices nigga  
 
 no cap i be makin 🧀🧀🧀😭😭😭 (jk... 👀👀👀)  
